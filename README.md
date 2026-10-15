@@ -28,4 +28,4 @@ Todos los artículos: [dambertmunoz.com/blog](https://dambertmunoz.com/blog)
 
 ## Encuéntrame en
 
-[LinkedIn](https://www.linkedin.com/in/dambert-m-4b772397) · [Bluesky](https://bsky.app/profile/dambertmunoz.com) · [DEV](https://dev.to/dambertmunoz) · [Medium](https://medium.com/@dmsantillana2705) · [ORCID](https://orcid.org/0000-0002-2583-0268)
+[LinkedIn](https://www.linkedin.com/in/dambert-m-4b772397) · [TikTok](https://www.tiktok.com/@dambertmunoz) · [Bluesky](https://bsky.app/profile/dambertmunoz.com) · [DEV](https://dev.to/dambertmunoz) · [Medium](https://medium.com/@dmsantillana2705) · [ORCID](https://orcid.org/0000-0002-2583-0268)
